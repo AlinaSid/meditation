@@ -9,9 +9,12 @@
   
 Try doing this for 5 min a day and you will feel different.
 
-
-I attached link for using :)
+ ---
+ 
+## I attached link for using :)
  <a href="https://frequent-dirt-track.glitch.me/" target="_blank">MEDITATION</a> 
+
+ P.S Safari browser doesn't support it
 
   
 
